@@ -1,2 +1,2 @@
 # wallpapers
-My walpapper collection
+My wallpaper collection
